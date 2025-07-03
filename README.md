@@ -1,1 +1,1 @@
-![](https://64.media.tumblr.com/261d496009a9890242077d7afd93a2b0/8f38b64150e08728-bc/s640x960/f67823e0c2e5609c657735e1f6849c500a9aecad.gifv)
+![](https://64.media.tumblr.com/5b3dffbb778748a841bce51cab33aea8/f1426d55523a1531-dd/s1280x1920/c466811e0ce746df116dfeea6124e9a9eace42af.pnj)
