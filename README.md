@@ -1,4 +1,4 @@
-## <p align="center">![](https://komarev.com/ghpvc/?username=trulylain&label=⛧+&color=926937)
+## <p align="center">![](https://komarev.com/ghpvc/?username=trulylain&label=𓃠+&color=926937)
 
 ![](https://64.media.tumblr.com/815e67f128e6934a5a46bb8561344a84/473928ea48888009-4b/s100x200/c5acacd5206cf81486b987b4d370da08d30e9536.pnj)
 ![](https://64.media.tumblr.com/1f05704d0bb02629e4f0c9d2956d3f07/473928ea48888009-80/s100x200/de965c3755aa2cc768b659ab2a750e6bd101a16e.gifv)
