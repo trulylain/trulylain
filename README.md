@@ -2,7 +2,7 @@
 
 
  
-[strawpage](https://lainfr.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+ ‎ ‎ 
 
 
 
