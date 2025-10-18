@@ -1,4 +1,4 @@
-<div align="center"> <img src="https://64.media.tumblr.com/5d6a9b50976263dc29a0f52af63e9e6d/831f61b07b1481d2-d0/s1280x1920/515c42629b82fb66991cacb3e0eaae47b118fe43.gifv" width="250"> </div> <div align="center">   
+<div align="center"> <img src="https://media.discordapp.net/attachments/1416869156762030125/1426480638621650984/2025_10_11_06h_Kleki.png?ex=68f49b9e&is=68f34a1e&hm=05e4dd83c1db3eeec33115e15d8e6de5a5a874b3ae541c9f1bf2dab7f7348aa2&=&format=webp&quality=lossless&width=1256&height=1054" width="250"> </div> <div align="center">   
  
  [Strawpage](https://radionews.straw.page/)
  
