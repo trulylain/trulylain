@@ -1,9 +1,9 @@
-<div align="center"> <img src=" 
+<div align="center"> 
+ <img width="400" height="575" alt="image" src="https://github.com/user-attachments/assets/02e013b8-5b51-4bd8-a497-41748f7deb0b" />
 
-><img width="612" height="408" alt="image" src="https://github.com/user-attachments/assets/5326b28c-f7b6-4541-ab7a-90ed0ee3e7ac" />
 
 
 </div> <div align="center">
  
  
-⛧ [Strawpage](https://radionews.straw.page/)
+ [Strawpage](https://radionews.straw.page/)
